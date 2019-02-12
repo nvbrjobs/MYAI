@@ -1,0 +1,2 @@
+# MYAI
+AI PROJECTS
